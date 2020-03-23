@@ -1,1 +1,2 @@
 Este curso me surpreendeu no sentido de que eu esperava que fossemos ver algo sobre programação e linhas de código, mas, começamos a ver sobre como é o relacionamento de um time de desenvolvimento, conceitos relacionados a área de trabalho, termos novos, linhas de pensamento, tudo novo para mim, estou empolgado, feliz com o que estou aprendendo e espero conseguir trabalhar na área.
+Felipe Max.
